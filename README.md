@@ -7,4 +7,4 @@
 
 ⠀ look at my student dawg he's gonna fail 
 
-<img width="333" height="123" alt="Screenshot 2026-05-14 120141" src="https://github.com/user-attachments/assets/0a724eae-e7bb-4ca0-8b32-ec968636e83e" />
+<img width="341" height="741" alt="IMG_0318" src="https://github.com/user-attachments/assets/290d95aa-35ca-40fd-82c8-a40ba148ebfc" />
