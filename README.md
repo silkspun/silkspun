@@ -7,4 +7,6 @@
 
 ⠀ look at my student dawg he's gonna fail 
 
-<img width="341" height="741" alt="IMG_0318" src="https://github.com/user-attachments/assets/290d95aa-35ca-40fd-82c8-a40ba148ebfc" />
+rate my burp compilation
+
+https://github.com/user-attachments/assets/10ff7ce2-10d6-4fdb-8a67-50f4d9406a23
