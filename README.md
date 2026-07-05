@@ -9,4 +9,4 @@
 
 rate my burp compilation
 
-https://github.com/user-attachments/assets/10ff7ce2-10d6-4fdb-8a67-50f4d9406a23
+https://github.com/user-attachments/assets/bc6e2da1-76a2-40b3-8bd0-6c0f3e931615
